@@ -1,4 +1,3 @@
 jai hind
 mai zindgi ka saath nibhata chala gaya
-raman junga
-kvgugfugruh
+aur vo mujhe nibhaati chali gayi
